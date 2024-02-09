@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **anjaralam1635@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1rgCDD13CMKapeasSQkYghAwXnOVVrdco/view?usp=sharing](https://drive.google.com/file/d/1rgCDD13CMKapeasSQkYghAwXnOVVrdco/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1rgCDD13CMKapeasSQkYghAwXnOVVrdco/view?usp=sharing](https://drive.google.com/file/d/1QtlVfQ01GOIn4oe8FOc9PxiwR7QmS_Z_/view?usp=sharing)
 
 - ⚡ Fun fact **i am Funny😍😊**
 
