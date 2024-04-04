@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=anjar9661&label=Profile%20views&color=0e75b6&style=flat" alt="anjar9661" /> </p>
 
-- 🔭 I’m currently studying Computer Science & Engineering [Heart_Disease-Modeling](https://drive.google.com/file/d/1611g91jrfQWeQhywpY_GLXMHb3iKq-oZ/view?usp=sharing)
+- 🔭  [All of my projects are available at](https://drive.google.com/file/d/1b9OOj6MtP9tf587WdjbQCGiZrnQx5xks/view?usp=sharing)
 
 - 🌱 I’m currently learning **Data Analytics**
 
