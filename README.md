@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=anjar9661&label=Profile%20views&color=0e75b6&style=flat" alt="anjar9661" /> </p>
 
-<p align="left"> <a href="https://x.com/AnjarSaikh25936?t=fOUryelAaEYG0iZKMvQFCA&s=09" target="blank"> <  https://x.com/AnjarSaikh25936?t=fOUryelAaEYG0iZKMvQFCA&s=09https://x.com/AnjarSaikh25936?t=fOUryelAaEYG0iZKMvQFCA&s=09/></a></p>
+<p align="left"> <a href="https://x.com/AnjarSaikh25936?t=fOUryelAaEYG0iZKMvQFCA&s=09" target="blank"> < https://x.com/AnjarSaikh25936?t=fOUryelAaEYG0iZKMvQFCA&s=09https://x.com/AnjarSaikh25936?t=fOUryelAaEYG0iZKMvQFCA&s=09/></a></p>
 
 - 🔭 I’m currently studying Computer Science & Engineering [Heart_Disease-Modeling](https://drive.google.com/file/d/1611g91jrfQWeQhywpY_GLXMHb3iKq-oZ/view?usp=sharing)
 
